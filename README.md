@@ -7,3 +7,5 @@
 - ***Cursos e Certificados***
 - ***Experiência Profissional***
 - ***Redes Sociais***
+
+***Confira meu currículo:*** https://diogomoraess2.github.io/curriculo-diogo/
